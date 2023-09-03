@@ -1,1 +1,1 @@
-# El-colapso-de-la-remuneracion-medica-en-Argentina
+# El colapso de la remuneracion medica en Argentina
